@@ -12,3 +12,14 @@ Beyond producing, I’m also diving into research on the growth of emerging film
 -Motion picture medium, BA Honours
 
 -Strategilc Leadership & Management, PGD
+
+### Experience
+#### Production Manager- Maru TV
+
+Content Curation
+
+TV Content project evaluation and Commissioning
+
+### Projects
+When The Gospel speaks | Psychological feature Film | 80mins | Premier 21 January 2025
+
