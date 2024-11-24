@@ -1,4 +1,5 @@
 # Creative Producer
+Film Producer | Researcher | Schoolar
 
 ### Bio
 I’m a creative film producer with a deep commitment to reshaping the African film landscape. My work blends the innovative spirit of storytelling with the strategic focus of my background in Economics, Strategic Leadership, and Management. This unique combination allows me to approach film production with both creativity and a clear focus on sustainability.
